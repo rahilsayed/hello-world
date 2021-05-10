@@ -1,2 +1,3 @@
 # hello-world
-First Repository
+
+WAKE UP TO REALITY !!!
